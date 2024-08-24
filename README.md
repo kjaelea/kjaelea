@@ -2,7 +2,7 @@
 - 👀 I’m interested in tomatoes
 - 🌱 I’m currently learning tomatoes
 - 💞️ I’m looking to collaborate on tomatoes
-- 📫 How to reach me tomatoes
+- 📫 How to reach me give tomatoes
 - 😄 Pronouns: toma/toes
 - ⚡ Fun fact: tomatoes
 
